@@ -5,7 +5,7 @@ Ingredients for tomato soup
 - 1.5 cups water, vegetable or chicken stock
 - 0.5 tsp salt, or more to taste
 
-Instructions
+Instruction
 
 1. Melt the butter over medium heat in a large saucepan.
 2. Add onion wedges, water, tomatoes with their juices, and salt.
