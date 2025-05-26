@@ -12,7 +12,7 @@ Ingredients for chokolade chips cookies
 - 150 grams chocolate (e.g., a mix of dark and milk chocolate)
 - 100 grams chopped hazelnuts (can be omitted or replaced with oats)
 
-Instructions
+Instruction
 
 1. Mix the sugar, brown sugar, and butter well.
 2. Add the egg and mix again.
